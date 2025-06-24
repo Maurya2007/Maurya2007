@@ -1,8 +1,8 @@
 ## Hi, I'm Maurya Patel 👋
 
-💻 Math student at the **University of Waterloo  **
+💻 Math student at the **University of Waterloo**
 
-📊 BBA student at **Wilfrid Laurier University ** 
+📊 BBA student at **Wilfrid Laurier University**
 
 🧠 Passionate about AI, design thinking & entrepreneurship  
 
